@@ -1,1 +1,0 @@
-# Renoir's Studies
